@@ -1,1 +1,0 @@
-# nopparat.github.io
